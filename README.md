@@ -12,6 +12,6 @@ For in this ideal place money would be no more the sovereign lord. Individual me
 
 In brief, it would be a place where the relations among human beings, usually based almost exclusively upon competition and strife, would be replaced by relations of emulation for doing better, for collaboration, relations of real brotherhood.
 
-                                                                                                  The Mother (The Dream)
+                                                                                                              The Mother (The Dream)
                                                                                                   
 
